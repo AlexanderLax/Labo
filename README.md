@@ -8,7 +8,7 @@
 
 ### 老司机和充值用户务必收藏该网址，永不迷路
 - 😄 务必收藏本页1：https://github.com/AlexanderLax/Labo/blob/main/README.md
-- 😄 务必收藏本页2：https://trello.com/b/QlEBvlFE/%E8%BE%A3%E6%92%AD%E5%9C%B0%E5%9D%80%E5%8F%91%E5%B8%83
+- 😄 务必收藏本页2：https://trello.com/b/QlEBvlFE/labo
 
 ### 域名指南
 - 🌱 最新入口：https://www.pornlab.fun
