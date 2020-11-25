@@ -7,7 +7,7 @@
 - ⚡ Coser女仆团 双马尾萝莉 JK女制服系列 反差婊 黑丝长腿 童颜巨乳
 
 ### 老司机和充值用户务必收藏该网址，永不迷路
-- 😄 务必收藏本页：https://github.com/AlexanderLax/Labo/edit/main/README.md
+- 😄 务必收藏本页：https://github.com/AlexanderLax/Labo/blob/main/README.md
 
 ### 域名指南
 - 🌱 最新入口：https://www.pornlab.fun
